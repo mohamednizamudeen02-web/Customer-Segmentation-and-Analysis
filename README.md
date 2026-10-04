@@ -100,6 +100,6 @@ Contact
 
 For questions or feedback, contact:
 
-Your Name: mohamedmuntasirs.ug22.ad@francisxavier.ac.in
+Your Name: Mohamed Nizamudeen
 
-GitHub Profile: https://github.com/mohamedmunthasirs23
+GitHub Profile: https://github.com/mohamedmunthasirs23](https://github.com/mohamednizamudeen02-web
