@@ -102,4 +102,4 @@ For questions or feedback, contact:
 
 Your Name: Mohamed Nizamudeen
 
-GitHub Profile: https://github.com/mohamedmunthasirs23](https://github.com/mohamednizamudeen02-web
+GitHub Profile: https://github.com/mohamednizamudeen02-web
